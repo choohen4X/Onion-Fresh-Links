@@ -36,60 +36,60 @@ Step into the Shadows with Onion Fresh Links 2024, your compass in the labyrinth
 
 Shadow's Summit: 2024's Top 10 Fresh Onion Links" reveals the pinnacle of clandestine exploration, offering a gateway to hidden realms. These vetted links unlock a spectrum of resources, from forums to marketplaces, enriching the darknet experience. Navigate the shadows with confidence, guided by the best in clandestine connectivity
 
-### Ahmia
+### 1 Ahmia
 
 - [Ahmia](http://juhanurmihxlp77nkq76byazcldy2hlmovfu2epvl5ankdibsot4csyd.onion) - `http://juhanurmihxlp77nkq76byazcldy2hlmovfu2epvl5ankdibsot4csyd.onion`
 
 <a href="http://juhanurmihxlp77nkq76byazcldy2hlmovfu2epvl5ankdibsot4csyd.onion"><img src="https://github.com/choohen4X/Onion-Fresh-Links/blob/main/Onion-Fresh-Links-2024/Ahmia.png"><a>
 
-### CashCow
+### 2 CashCow
 
 - [CashCow](http://hssza6r6fbui4x452ayv3dkeynvjlkzllezxf3aizxppmcfmz2mg7uad.onion) - `http://hssza6r6fbui4x452ayv3dkeynvjlkzllezxf3aizxppmcfmz2mg7uad.onion`
 
 <a href="http://hssza6r6fbui4x452ayv3dkeynvjlkzllezxf3aizxppmcfmz2mg7uad.onion"><img src="https://github.com/choohen4X/Onion-Fresh-Links/blob/main/Onion-Fresh-Links-2024/Cash%20Cow.png"><a>
 
-### CashMachine
+### 3 CashMachine
 
 - [CashMachine](http://n3irlpzwkcmfochhuswpcrg35z7bzqtaoffqecomrx57n3rd5jc72byd.onion) - `http://n3irlpzwkcmfochhuswpcrg35z7bzqtaoffqecomrx57n3rd5jc72byd.onion`
 
 <a href="http://n3irlpzwkcmfochhuswpcrg35z7bzqtaoffqecomrx57n3rd5jc72byd.onion"><img src="https://github.com/choohen4X/Onion-Fresh-Links/blob/main/Onion-Fresh-Links-2024/CashMachine.png"><a>
 
-### DuckDuckGo
+### 4 DuckDuckGo
 
 - [DuckDuckGo](http://duckduckgogg42xjoc72x3sjasowoarfbgcmvfimaftt6twagswzczad.onion) - `http://duckduckgogg42xjoc72x3sjasowoarfbgcmvfimaftt6twagswzczad.onion`
 
 <a href="http://duckduckgogg42xjoc72x3sjasowoarfbgcmvfimaftt6twagswzczad.onion"><img src="https://github.com/choohen4X/Onion-Fresh-Links/blob/main/Onion-Fresh-Links-2024/DuckDuckGo.png"><a>
 
-### Fish'n'Pal
+### 5 Fish'n'Pal
 
 - [Fish'n'Pal](http://56dlutemceny6ncaxolpn6lety2cqfz5fd64nx4ohevj4a7ricixwzad.onion) - `http://56dlutemceny6ncaxolpn6lety2cqfz5fd64nx4ohevj4a7ricixwzad.onion`
 
 <a href="http://56dlutemceny6ncaxolpn6lety2cqfz5fd64nx4ohevj4a7ricixwzad.onion"><img src="https://github.com/choohen4X/Onion-Fresh-Links/blob/main/Onion-Fresh-Links-2024/Fish'n'Pal.png"><a>
 
-### OnionLinks
+### 6 OnionLinks
 
 - [OnionLinks](http://jaz45aabn5vkemy4jkg4mi4syheisqn2wn2n4fsuitpccdackjwxplad.onion) - `http://jaz45aabn5vkemy4jkg4mi4syheisqn2wn2n4fsuitpccdackjwxplad.onion`
 
 <a href="http://jaz45aabn5vkemy4jkg4mi4syheisqn2wn2n4fsuitpccdackjwxplad.onion"><img src="https://github.com/choohen4X/Onion-Fresh-Links/blob/main/Onion-Fresh-Links-2024/OnionLinks.png"><a>
 
-### PremiumCards
+### 7 PremiumCards
 - [PremiumCards](http://hbl6udan73w7qbjdey6chsu5gq5ehrfqbb73jq726kj3khnev2yarlid.onion) - `http://hbl6udan73w7qbjdey6chsu5gq5ehrfqbb73jq726kj3khnev2yarlid.onion`
 
 <a href="http://hbl6udan73w7qbjdey6chsu5gq5ehrfqbb73jq726kj3khnev2yarlid.onion"><img src="https://github.com/choohen4X/Onion-Fresh-Links/blob/main/Onion-Fresh-Links-2024/Premium%20cards.png"><a>
 
-### TheGreenMachine
+### 8 TheGreenMachine
 
 - [PremiumCards](http://vw5vzi62xqhihghvonatid7imut2rkgiudl3xomj4jftlmanuwh4r2qd.onion) - `http://vw5vzi62xqhihghvonatid7imut2rkgiudl3xomj4jftlmanuwh4r2qd.onion`
 
 <a href="http://vw5vzi62xqhihghvonatid7imut2rkgiudl3xomj4jftlmanuwh4r2qd.onion"><img src="https://github.com/choohen4X/Onion-Fresh-Links/blob/main/Onion-Fresh-Links-2024/The%20Green%20Machine.png"><a>
 
-### USJUD
+### 9 USJUD
 
 - [USJUD](http://usjud6uoc5gxmrfyuid4hm3e2slisucbwwnviiltyvdp5pma2xsr7aad.onion) - `http://usjud6uoc5gxmrfyuid4hm3e2slisucbwwnviiltyvdp5pma2xsr7aad.onion`
 
 <a href="http://usjud6uoc5gxmrfyuid4hm3e2slisucbwwnviiltyvdp5pma2xsr7aad.onion"><img src="https://github.com/choohen4X/Onion-Fresh-Links/blob/main/Onion-Fresh-Links-2024/USJUD.png"><a>
 
-### TheHiddenWiki
+### 10 TheHiddenWiki
 
 - [TheHiddenWiki](http://zqktlwiuavvvqqt4ybvgvi7tyo4hjl5xgfuvpdf6otjiycgwqbym2qad.onion/wiki/index.php/Main_Page) - `http://zqktlwiuavvvqqt4ybvgvi7tyo4hjl5xgfuvpdf6otjiycgwqbym2qad.onion/wiki/index.php/Main_Page`
 
