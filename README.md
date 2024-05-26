@@ -2,12 +2,25 @@
 
 <img src="https://github.com/choohen4X/Onion-Fresh-Links/blob/main/link%20Image.png">
 
+> Embark on a journey through a meticulously curated selection of verified .onion URLs, showcasing a diverse array of Onion Services tucked away within the enigmatic depths of the darknet.
+
+<small> 
+
+*Step into an enlightening realm crafted for delving into the mysteries of the dark web through a scientific prism. Here, we eschew the allure of market links for the pursuit of unbiased exploration, free from institutional ties. Our ethos is rooted in the dissemination of knowledge, sans any endorsement of illicit endeavors.*
+
+</small>
+
 ## Introduction
 
 Step into the Shadows with Onion Fresh Links 2024, your compass in the labyrinth of the dark web. Delve into a handpicked trove of gateways to diverse resources, marketplaces, and utilities, all accessible through the veiled corridors of the Tor network.
 
 ## Table of Contents
 
+Certainly! Here's the updated Table of Contents with the addition:
+
+## Table of Contents
+
+- [Shadow's Summit: 2024's Top 10 Fresh Onion Links](#shadows-summit-2024s-top-10-fresh-onion-links)
 - [The Hidden Wiki - Your Starting Point](#the-hidden-wiki---your-starting-point)
 - [Tor Project - Protecting Your Privacy](#tor-project---protecting-your-privacy)
 - [Marketplaces - Where Goods Meet Demand](#marketplaces---where-goods-meet-demand)
